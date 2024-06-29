@@ -3,8 +3,8 @@
 
 ## Projeyi Yapanlar
 
-Yakuphan 
-Abdulsamet
+Yakuphan ,
+Abdulsamet,
 Yuşa Umut 
 
 
